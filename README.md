@@ -1,2 +1,9 @@
 # hello-world
-Iniciando
+
+Presion!
+
+
+Final del semestre cerca, estresado, mucho trabajo.
+
+
+AUXILIO!!!
